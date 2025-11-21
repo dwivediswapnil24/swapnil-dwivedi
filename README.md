@@ -22,4 +22,4 @@ I don't just build websites; I build websites that can *think* and perform tasks
 
 ---
 
-[Connect with me on LinkedIn](swapnil-dwivedi-287717281) | [Shoot me an Email](mailto:dwivediswapnil2005@gmail.com)
+[Connect with me on LinkedIn](https://www.linkedin.com/in/swapnil-dwivedi-287717281/) | [Shoot me an Email](mailto:dwivediswapnil2005@gmail.com)
